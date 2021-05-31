@@ -21,3 +21,7 @@ I always excited to meet and engage new people and learn from them and with them
 Enjoy working and especially practicing yoga
 Reading books
 PC gaming
+
+### You can reach 📫 me at
+benshalomrami@gmail.com
+[LinkedIn] www.linkedin.com/in/rami-ben-shalom-865886202
